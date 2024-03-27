@@ -1,3 +1,5 @@
+## Kitten heart доступна по [ссылке](https://kittenheart.ru) | в [Discord](https://discord.gg/sg7g7kWrsM) | telegram bot @thekittenheart_bot
+
 ## Как играть | Kitten heart FAQ
 
 ---
